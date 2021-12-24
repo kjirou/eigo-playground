@@ -1,2 +1,0 @@
-# eigo-playground
-Eigooooooo!
